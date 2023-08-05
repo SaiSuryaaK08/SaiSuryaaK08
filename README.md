@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SaiSuryaaK08
-- 👀 I’m interested in App,Web and Game Devlopment
+- 👀 I’m interested in App,Web and Game Development
 - 🌱 I’m currently learning
 - 📫 How to reach me 
 - 📧 saisuryaak8@gmail.com
